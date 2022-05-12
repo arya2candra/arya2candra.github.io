@@ -1,2 +1,0 @@
-# aryadwicandra
-arya homepage
